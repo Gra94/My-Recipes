@@ -25,11 +25,19 @@
 
 1. Cut a small “X” into the bottom of 4 of the roma tomatoes, and prepare both a pot of boiling water and a large bowl of ice water.  Blanch the tomatoes for less than one minute, until cuts just begin to split up the sides of the tomatoes.  Remove immediately and place in the ice bath, and allow to cool completely.  Set aside.
 
+![](https://lumiere-a.akamaihd.net/v1/images/open-uri20150422-20810-6pb5yg_c12dffb8.jpeg?region=0%2C0%2C600%2C600&optimize=true) 
+
 2. Set a large stovetop gas burner to high, and place two bell peppers directly on the grate over the flame.  Allow to char completely before flipping, and blackening on all sides.  Remove from heat and cover with tin foil for about 5 minutes, until softened.  Peel off skins and place in a high-powered blender or food processor, along with remaining tomatoes, the picked leaves of one rosemary sprig, thyme, garlic, onion, vegetable stock, water, and 1 tablespoon olive oil.  Blend on high speed until completely smooth.
+
+![](https://cimg.tvgcdn.net/i/r/2008/01/22/e59c14ef-a245-4e0e-a91f-7597d448fdb8/crop/220x165+0+0/thumbnail/350x262/1259b64b9046641dc5e0ff84076440f0/02552.jpg)
 
 3. Preheat oven to 225°F.  Using a very sharp knife, cut tomatoes into 1/8-inch thick slices, and place on a parchment-lined baking sheet.  Using a mandolin, slice squash and eggplants into 1/8-inch thick slices, and stack on the baking sheet.  In a shallow roaster or casserole, pour a thin layer of the roast pepper mixture, and spread evenly.  Begin shingling vegetables on top: eggplant, followed by tomato, yellow squash, and green squash - continuing the pattern around the edge of the roaster, letting each slice stick out less than 1/4-inch from underneath the following slice.  Once the outside of the roaster has been lined with vegetables, repeat another layer inside, and continue until roaster is filled with patterned vegetables.  Finely chop remaining rosemary, and sprinkle over top with 1 tablespoon olive oil, salt, and pepper.  Cut a piece of parchment paper to the size of the roaster, place on top of vegetables.  Roast for 90 minutes, removing the parchment paper during the final 20 minutes of cooking.
 
+![](https://www.slashfilm.com/wp/wp-content/images/rat2.jpg)
+
 4. Once vegetables are completely softened but still hold their shape, remove from the oven.  Place a ring mold in the center of a large plate, and fill widthwise with vegetables stacked vertically.  Place a layer of vegetables staggered horizontally over top, and slowly remove ring mold.  Combine 1 tablespoon of the red pepper sauce from the bottom of the roaster with remaining olive oil, and drizzle in a circle around the outside of the vegetable stack.  Garnish with torn parsley and shredded carrots and serve.
+
+![](https://lumiere-a.akamaihd.net/v1/images/open-uri20150422-20810-ib8f6d_cbcd4baf.jpeg)
 
 6. ENJOY!
 
